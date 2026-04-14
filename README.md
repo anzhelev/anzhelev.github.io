@@ -1,1 +1,1 @@
-Privacy Policy for apps
+Privacy Policy & Support for apps
