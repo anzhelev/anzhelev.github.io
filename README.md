@@ -1,2 +1,1 @@
-# anzhelev..github.io
-Privacy Policy
+Privacy Policy for apps
